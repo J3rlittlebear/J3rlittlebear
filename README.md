@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @J3r
-- 👀 I’m interested in discord
+- 👋 Hi, I’m someone
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing like actually nothing
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me dm me in discord
